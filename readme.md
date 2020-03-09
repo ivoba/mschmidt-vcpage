@@ -1,1 +1,0 @@
-# M.Schmidt VC page
